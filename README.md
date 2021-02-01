@@ -1,0 +1,1 @@
+# indicadorfuzzy_1
